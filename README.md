@@ -46,6 +46,7 @@ The film is also meaningful because it teaches forgiveness and healing. It shows
 ## Rating
 5/5
 A magical and emotional movie that redefines what it means to be good, evil, and everything in between.
-<img width="474" height="750" alt="OIP" src="https://github.com/user-attachments/assets/5b7c0dbc-a74c-4322-9809-e9377682bf0b" />
+ <img width="2880" height="1800" alt="R" src="https://github.com/user-attachments/assets/2501b74d-6163-4ec7-87ac-e96f8f7b71df" />
+
 
  
