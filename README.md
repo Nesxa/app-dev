@@ -31,3 +31,4 @@ Maleficent is my favorite movie because:
 
 ## Rating
 5/5
+<img width="444" height="589" alt="image" src="https://github.com/user-attachments/assets/14248e30-c5ec-4247-84d0-815aef5e7a7b" />
