@@ -38,9 +38,9 @@ The film is also meaningful because it teaches forgiveness and healing. It shows
 ---
 
 ## Main Characters
-Maleficent – A powerful fairy who becomes dark after betrayal but later learns to love and forgive.
-Aurora – A kind princess who brings light and change into Maleficent’s life.
-King Stefan – A greedy and ambitious ruler whose choices lead to betrayal and conflict.
+1. Maleficent – A powerful fairy who becomes dark after betrayal but later learns to love and forgive.
+2. Aurora – A kind princess who brings light and change into Maleficent’s life.
+3. King Stefan – A greedy and ambitious ruler whose choices lead to betrayal and conflict.
 ---
 
 ## Rating
