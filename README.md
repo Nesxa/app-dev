@@ -19,7 +19,7 @@ The film is also meaningful because it teaches forgiveness and healing. It shows
 ---
 
 ## Favorite Quote
->“I had wings once. They were stolen from me.”
+“I had wings once. They were stolen from me.”
 – Shows Maleficent’s deep pain and betrayal. Explains why she changed and how hurt can strongly affect a person’s actions and personality.
 > <img width="1154" height="725" alt="maleficent-angelina-jolie-angry-enraged" src="https://github.com/user-attachments/assets/984763f5-2dd2-4690-bf8d-fc341c9f65bd" />
 
