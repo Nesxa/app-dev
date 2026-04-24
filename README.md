@@ -25,14 +25,13 @@ The film is also meaningful because it teaches forgiveness and healing. It shows
 
 “A true love doesn’t come just from a fairy tale.”
 – Not only about romance or “true love’s kiss,” but also care, sacrifice, and genuine connection.
-<img width="719" height="422" alt="image" src="https://github.com/user-attachments/assets/4fa7046c-e24f-4173-b727-169e6d0a48c8" />
+ 
 
 
 “You don’t know me.”
 – Reminds us not to judge others quickly because we may not understand what they have been through or why they act the way they do.
 
-<img width="976" height="600" alt="image" src="https://github.com/user-attachments/assets/f9da0b64-63e8-4045-afa8-f0cb3bb98fe8" />
-
+ 
 
 ---
 
@@ -45,4 +44,5 @@ King Stefan – A greedy and ambitious ruler whose choices lead to betrayal and 
 ## Rating
 5/5
 A magical and emotional movie that redefines what it means to be good, evil, and everything in between.
-<img width="444" height="589" alt="image" src="https://github.com/user-attachments/assets/14248e30-c5ec-4247-84d0-815aef5e7a7b" />
+ <img width="976" height="600" alt="princessaurora-maleficent2" src="https://github.com/user-attachments/assets/ddab7b0d-8590-4e04-adb7-0e8f5417a343" />
+
